@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ridwannar
-- 👀 I’m interested in someone with an initial ... oops, I can't call it because of secrets >//<
+- 👀 I’m interested on someone with an initial ... oops, I can't say it because of secrets >//<
 
 
 
